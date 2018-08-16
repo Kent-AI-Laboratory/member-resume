@@ -1,1 +1,0 @@
-[Birkhoff](https://birkhoff.ch)
